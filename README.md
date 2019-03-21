@@ -1,2 +1,4 @@
 # HelloCigany
 szeretnemrendbetennieztazegeszeletemet
+
+sziasztok tesvérek ; ) 
